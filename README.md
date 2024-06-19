@@ -11,6 +11,6 @@ link)
 
 **||Você pode entrar em contato comigo 📫||**
 
--00001101277282sp@al.educacao.sp.gov.br
+- 00001101277282sp@al.educacao.sp.gov.br
 
 - @Harumari17
